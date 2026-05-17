@@ -1,4 +1,4 @@
-
+حصرية IPVanish عميل | تحسين البث + دعم WireGuard هو أفضل IPVanish عميل مع تحسين البث و دعم WireGuard. آمن ومُحَسّن.
 
 
 
